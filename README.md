@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m Ixan Meléndez<br><br>I’m an IT Consultant with 4 years of professional experience, from salesforce all the way to custom apps..<br><br>Beyond tech, I believe in balance and creativity — both of which inspire how I work and live.<br><br>💃 Salsa dance instructor: I teach rhythm, movement, and confidence — skills that translate surprisingly well to team collaboration.<br><br>🏋️‍♂️ CrossFitter: I enjoy the discipline and consistency it brings to both my healthy life and professional growth.<br><br>🎷 Saxophonist: Music keeps my mind always active, and just having fun while listening or making music.
+👋 Hi, I’m Ixan Meléndez<br><br>I’m an IT Consultant with 5 years of professional experience, from salesforce all the way to custom apps..<br><br>Beyond tech, I believe in balance and creativity — both of which inspire how I work and live.<br><br>💃 Salsa dance instructor: I teach rhythm, movement, and confidence — skills that translate surprisingly well to team collaboration.<br><br>🏋️‍♂️ CrossFitter: I enjoy the discipline and consistency it brings to both my healthy life and professional growth.<br><br>🎷 Saxophonist: Music keeps my mind always active, and just having fun while listening or making music.
 
 
 ## 🌐 Socials:
